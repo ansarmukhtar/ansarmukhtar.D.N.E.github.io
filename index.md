@@ -1,2 +1,2 @@
-# Ansar Mukhtar
-# cbs international business school
+# Digital Network Economy
+Ansar Mukhtar
