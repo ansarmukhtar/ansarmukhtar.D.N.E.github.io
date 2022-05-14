@@ -1,2 +1,2 @@
 # Ansar Mukhtar
-# cbs 
+# cbs international business school
